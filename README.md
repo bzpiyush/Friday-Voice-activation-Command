@@ -1,0 +1,1 @@
+# Friday-Voice-activation-Command
